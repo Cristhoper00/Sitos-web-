@@ -1,2 +1,2 @@
-# Sitos-web-
-repasos sitios web 
+#repaso Sitos web
+https://manzana-smart.blogspot.com/
